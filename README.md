@@ -1,4 +1,11 @@
 # Read books during 2019
 
-### Extreme Ownership ###
+## January ##
+### [Extreme Ownership](https://www.amazon.com/Extreme-Ownership-U-S-Navy-SEALs/dp/1250183863/ref=sr_1_2?ie=UTF8&qid=1549010258&sr=8-2&keywords=extreme+ownership){:target="_blank"} ###
 By Joco Wilinks and Leif Babain :notebook_with_decorative_cover: :notebook_with_decorative_cover: :notebook_with_decorative_cover: :notebook_with_decorative_cover: :notebook_with_decorative_cover:
+
+### [How to Win Friends & Influence People](https://www.amazon.com/How-Friends-Influence-People-Paperback/dp/B00AZS50G6/ref=sr_1_6?ie=UTF8&qid=1549010396&sr=8-6&keywords=how+to+win+friends+and+influence+people+by+dale+carnegie){:target="_blank"} ###
+By Dale Carnegie :notebook_with_decorative_cover: :notebook_with_decorative_cover: :notebook_with_decorative_cover: :notebook_with_decorative_cover: :notebook_with_decorative_cover:
+
+### [The art of peace](https://www.amazon.com/Art-Peace-Teachings-Founder-Aikido/dp/0877738513/ref=sr_1_1?ie=UTF8&qid=1549010459&sr=8-1&keywords=The+art+of+peace){:target="_blank"} ### 
+By Morihei Ueshiba :notebook_with_decorative_cover: :notebook_with_decorative_cover: :notebook_with_decorative_cover: :notebook_with_decorative_cover:
