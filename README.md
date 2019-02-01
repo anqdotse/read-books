@@ -3,8 +3,9 @@
 ## January ##
 ### [Extreme Ownership](https://www.amazon.com/Extreme-Ownership-U-S-Navy-SEALs/dp/1250183863/ref=sr_1_2?ie=UTF8&qid=1549010258&sr=8-2&keywords=extreme+ownership) ###
 
-> By Joco Wilinks and Leif Babain :notebook_with_decorative_cover: :notebook_with_decorative_cover: :notebook_with_decorative_cover: :notebook_with_decorative_cover: :notebook_with_decorative_cover:
-Learned about Jocko Willink from one of [Casey Neistat's vlogs](https://www.youtube.com/watch?v=C-Cvl3_CH2A). 
+> By Joco Wilinks and Leif Babain
+> :notebook_with_decorative_cover: :notebook_with_decorative_cover: :notebook_with_decorative_cover: :notebook_with_decorative_cover: :notebook_with_decorative_cover:
+> Learned about Jocko Willink from one of [Casey Neistat's vlogs](https://www.youtube.com/watch?v=C-Cvl3_CH2A). 
 
 ### [How to Win Friends & Influence People](https://www.amazon.com/How-Friends-Influence-People-Paperback/dp/B00AZS50G6/ref=sr_1_6?ie=UTF8&qid=1549010396&sr=8-6&keywords=how+to+win+friends+and+influence+people+by+dale+carnegie) ###
 > By Dale Carnegie :notebook_with_decorative_cover: :notebook_with_decorative_cover: :notebook_with_decorative_cover: :notebook_with_decorative_cover: :notebook_with_decorative_cover:
